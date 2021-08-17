@@ -1,4 +1,8 @@
 - 👋 Hi, I’m @WaiYanSoeMoe
+
+- Current mood - No dreams here. Survival, instead.
+
+
 - 👀 I’m interested in Nothing
 - 🌱 I’m currently learning Everything
 - 💞️ I’m looking to collaborate on Sharing
