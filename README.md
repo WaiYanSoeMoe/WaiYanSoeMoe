@@ -6,7 +6,7 @@
 - 👀 I’m interested in Nothing
 - 🌱 I’m currently learning Everything
 - 💞️ I’m looking to collaborate on Sharing
-- 📫 How to reach me ...
+- 📫 How to reach me ...  IDK
 
 <!---
 WaiYanSoeMoe/WaiYanSoeMoe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
