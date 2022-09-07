@@ -3,8 +3,8 @@
 - Current mood - No dreams here. Survival, instead.
 
 
-- 👀 I’m interested in Nothing
-- 🌱 I’m currently learning Everything
+- 👀 I’m interested in Everything
+- 🌱 I’m currently learning Nothing
 - 💞️ I’m looking to collaborate on Sharing
 - 📫 How to reach me ...  You're welcome!
 
